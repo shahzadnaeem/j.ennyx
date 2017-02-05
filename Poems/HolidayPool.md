@@ -22,3 +22,6 @@ The flowers and plants were drenched,
 In the cool summer's water.  
 But it soon evaporated.  
 As the sun grew ever hotter.  
+*( 4 more lines to come ... )*
+
+
