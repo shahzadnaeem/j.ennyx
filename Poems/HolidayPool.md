@@ -18,4 +18,7 @@ As the door opened wide.
 Then there was a great big splash,  
 As my dad attempted a dive.
 
-
+The flowers and plants were drenched,  
+In the cool summer's water.  
+But it soon evaporated.  
+As the sun grew ever hotter.  
